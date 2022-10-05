@@ -1,0 +1,3 @@
+Hi,I am a postgraduate from NJTech university in China.
+The major I learn in my college is Information Management and Inormation System.
+OH, it is very difficult for me to write paper...
